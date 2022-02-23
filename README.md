@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft and stuff
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on @CookieLeaks.de
-- 📫 How to reach me Discord Колин#5672
+- 📫 How to reach me Discord Lina xD#5672
 
 <!---
 HonigDevxD/HonigDevxD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
